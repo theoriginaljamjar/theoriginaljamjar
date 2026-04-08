@@ -11,9 +11,9 @@ _<br>.☘︎ ݁˖ I’m looking for help with basic coding
 <br>.☘︎ ݁˖ Fun fact: I love blueberries!!!!
 <br>.☘︎ ݁˖ How to reach me: on here :P_
 
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 ![3679693](https://github.com/user-attachments/assets/7446cd3f-1af3-4d74-89d5-055628063903)
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 <br>
 ♡ 
 <img width="99" height="56" alt="tumblr_b657c2837c409542b2ab9412a24f9cbb_1498ac44_100" src="https://github.com/user-attachments/assets/ad0a02ad-d012-478f-a9c9-6f1b9f70bddd" />
