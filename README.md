@@ -6,10 +6,10 @@
 <h3> I'm Jam :3 Currently unemployed and interested in learning more things... :P like coding! </h3>
 
 *__About me:__*
-<br>.☘︎ ݁˖ I’m looking for help with basic coding
+_<br>.☘︎ ݁˖ I’m looking for help with basic coding
 <br>.☘︎ ݁˖ Pronouns: She/Her
 <br>.☘︎ ݁˖ Fun fact: I love blueberries!!!!
-<br>.☘︎ ݁˖ How to reach me: on here :P
+<br>.☘︎ ݁˖ How to reach me: on here :P_
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 ![3679693](https://github.com/user-attachments/assets/7446cd3f-1af3-4d74-89d5-055628063903)
