@@ -18,7 +18,6 @@ _<br>.☘︎ ݁˖ I’m looking for help with basic coding
 ♡ 
 <img width="99" height="56" alt="tumblr_b657c2837c409542b2ab9412a24f9cbb_1498ac44_100" src="https://github.com/user-attachments/assets/ad0a02ad-d012-478f-a9c9-6f1b9f70bddd" />
 ![tumblr_22231001377df9e4d85a5fe93fec4c86_ca1b01f8_100](https://github.com/user-attachments/assets/8a9a3c71-d264-4e2f-8192-b4e2b271ed02)
-![tumblr_328a5dbcd7434d96291546ec92cf40be_37e52ffd_100](https://github.com/user-attachments/assets/e9a83eda-b446-4bf8-a776-783ed4cd042a)
 ![tumblr_a1945c05b3b61ad32c19e073c05f09b3_5fc4a85a_100](https://github.com/user-attachments/assets/6cc4c976-175f-4e54-b8a9-e3cce477f7c4)
 ![tumblr_9638c45e3b264355eb74e6afcc33b4fe_b89db1ba_100](https://github.com/user-attachments/assets/50f7beff-4b04-4239-92c2-d07d26f0fe90)
 <img width="99" height="57" alt="tumblr_dfc017942d9e5025bb451d5976719e2b_94c3175b_100" src="https://github.com/user-attachments/assets/3977a034-a956-4ca0-a9ae-ee498d5a9a36" />
